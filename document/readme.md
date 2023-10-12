@@ -1,0 +1,1 @@
+document prepared in pdf
